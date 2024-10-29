@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SkizoKid
+- 👋 Hi, I’m DumbAss
 - ⚡ Fun fact: i hate gov
 
 <!---
